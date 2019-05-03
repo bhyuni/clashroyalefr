@@ -1,7 +1,7 @@
 # clashroyalefr
 ## {{ ASTUCES }} Comment Avoir des Gemmes Gratuit sur Clash Royale Android et iOS - Générateur Gemmes illimités Clash Royale Sans Vérification 
 
-# LIEN: https://gemmesgratuit.com/clashroyaleastuce/?ref=pakx41s
+# LIEN: http://gemmesgratuit.com/clashroyaleastuce/?ref=pakx41s
 
 ## Clash Royale Triche Astuce Caractéristiques:
 
